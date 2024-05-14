@@ -9,4 +9,7 @@ Meu nome é Lucas Gabriel Passilongo Tecolo
 - ### Você entra em contato comigo 📧
 
 - tecololucas12@gmail.com
-- 
+
+
+![](https://media1.tenor.com/m/nvyXU_nufyEAAAAC/welcome-welcome-to-the-team.gif)  
+https://media1.tenor.com/m/nvyXU_nufyEAAAAC/welcome-welcome-to-the-team.gif
